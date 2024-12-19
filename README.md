@@ -7,6 +7,17 @@
 - ⚡ Fun fact: ...
 
 <!---
-Baybylove17061994/Baybylove17061994 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Baybylove17061994/Baybylove17061994 is a ✨ special ✨ repository because its `README.md` (this video 5file) appears on your GitHub profile.
+You can click the Preview link to take a look at yourl changes.
+--->- 👋 Hi, I’m @Baybylove170619l94
+- 👀 I’m interested in ... lokasi perumahan yang tidak bisa melihat info lengkap 
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate yang tidak online ...
+- 📫 How to reach me ...
+- 😄 Pronouns: bisa...
+- ⚡ Fun fact: ..fun.
+
+<!---
+Baybylove17061994/Baybylove17061994 is a ✨ special ✨ repository because its `README.md` (this video started playing on another device yang tidak file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
